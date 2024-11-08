@@ -1,0 +1,1 @@
+# Vreckov-Mobiln-Bezpe-nos-a-S-kromie
